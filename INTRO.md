@@ -1,1 +1,1 @@
-A short introduction about your team
+BitTorrentNow is committed to building a more open, transparent and efficient network. This mission is well aligned with TRON's vision. We are all devoted to building a more open and decentralized Internet so as to revitalize the Internet. We believe that our cooperation with TRON will help build a brighter future for the Internet.
